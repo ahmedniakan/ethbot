@@ -1,0 +1,2 @@
+# ethbot
+pump and dump
